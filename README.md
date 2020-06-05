@@ -1,1 +1,1 @@
-*** Canvas *** background animation by Muhammad Fauzan
+***Canvas*** background animation by Muhammad Fauzan
